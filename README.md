@@ -1,5 +1,5 @@
 # deneme
-jfkjdkfjkds
+jfkjdkfjkdsşlkl
 khkh
 ljfd
 açıklama
